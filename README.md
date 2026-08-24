@@ -1,0 +1,1 @@
+# nanbargame-privacy
